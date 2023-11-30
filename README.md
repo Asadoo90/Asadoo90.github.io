@@ -22,9 +22,15 @@ One of the best scenes in the show
 Pictures that will convince you to watch
 
 ![Facade](https://preview.redd.it/9o78gdvp4qq81.jpg?width=480&format=pjpg&auto=webp&s=68a63dc7227f3e0c4792d938f003db565f04456a)
+
 ![Facade](https://preview.redd.it/qqrj8tit4qq81.jpg?width=953&format=pjpg&auto=webp&s=582e3712054c18e34634bdb15b427775223eb1c5)
+
 (The image above is a picture of Rey Clasio CN12 9-Bobola)
+
 ![Facade](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTHdHTf06ha_RoRpU11hFe8qPpyGFqHtC3qAw&usqp=CAU)
+
 ![Facade](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQXroTl1OJIZ0BZMMlELRbHRU6h-BZo5hm1sw&usqp=CAU)
+
 (Another image of Rey Clasio)
+
 ![Facade](https://theadultswimsquad.files.wordpress.com/2016/09/ep-361-5.jpg?w=636&h=386)
