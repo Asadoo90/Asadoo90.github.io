@@ -2,7 +2,7 @@
 Gil Rafael S. Bitara
 
 
-Hi im here to convince you to watch one piece a very long Anime ive been watching
+What is One Piece?
 
 # One Piece
 ![Facade](https://www.dexerto.com/cdn-cgi/image/width=3840,quality=75,format=auto/https://editors.dexerto.com/wp-content/uploads/2023/10/23/one-piece-straw-hat-pirates.jpeg)
