@@ -5,10 +5,11 @@ Gil Rafael S. Bitara
 Hi im here to convince you to watch one piece a very long Anime ive been watching
 
 # One Piece
-![Facade](https://i.redd.it/2iwo03c9c00c1.jpg)
+![Facade](https://www.dexerto.com/cdn-cgi/image/width=3840,quality=75,format=auto/https://editors.dexerto.com/wp-content/uploads/2023/10/23/one-piece-straw-hat-pirates.jpeg)
 
-One piece is an anime made by eichiro oda that has been running for 25 years from its debut in the shounen jump manga. This Anime has made Eichiro Oda one of the most famous authors of all time
-<iframe width="560" height="315" src="https://www.youtube.com/watch?v=hTIMbpxlfsI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboardwrite; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+One piece is an anime made by eichiro oda that has been running for 25 years from its debut in the shounen jump manga. This Anime has made Eichiro Oda one of the most famous authors of all time. The anime has had over 1080+ episodes and is still on going
+
+<iframe width="560" height="315" src="https://youtu.be/hTIMbpxlfsI?si=1kqZQlHPxV4ZhkwS" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboardwrite; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 One of the best scenes in the show
 
@@ -27,3 +28,5 @@ Pictures that will convince you to watch
 (Another image of Rey Clasio)
 
 ![Facade](https://theadultswimsquad.files.wordpress.com/2016/09/ep-361-5.jpg?w=636&h=386)
+
+![Facade](https://i.pinimg.com/originals/73/d7/fc/73d7fcf37ca0479b39e68bc20bf7163a.png)
