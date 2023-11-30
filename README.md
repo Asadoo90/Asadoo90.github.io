@@ -14,7 +14,11 @@ One piece is an anime made by eichiro oda that has been running for 25 years fro
 
 This scene is one of the best and it happend in the Marineford arc
 
-Pictures that will convince you to watch
+***Why Watch??***
+-One Piece shows the difference of perspective and in a way its kind-of political and its a show that you can pick up anytime. Luffy, the main character can not be that likeable but im sure
+you'll enjoy watching
+
+***Images of the Show***
 
 ![Facade](https://preview.redd.it/9o78gdvp4qq81.jpg?width=480&format=pjpg&auto=webp&s=68a63dc7227f3e0c4792d938f003db565f04456a)
 
