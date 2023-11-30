@@ -2,9 +2,9 @@
 Gil Rafael S. Bitara
 
 
-What is One Piece?
+# What is One Piece?
 
-# One Piece
+
 ![Facade](https://www.dexerto.com/cdn-cgi/image/width=3840,quality=75,format=auto/https://editors.dexerto.com/wp-content/uploads/2023/10/23/one-piece-straw-hat-pirates.jpeg)
 
 One piece is an anime made by eichiro oda that has been running for 25 years from its debut in the shounen jump manga. This Anime has made Eichiro Oda one of the most famous authors of all time. The anime has had over 1080+ episodes and is still on going
@@ -35,3 +35,6 @@ you'll enjoy watching
 ![Facade](https://theadultswimsquad.files.wordpress.com/2016/09/ep-361-5.jpg?w=636&h=386)
 
 ![Facade](https://i.pinimg.com/originals/73/d7/fc/73d7fcf37ca0479b39e68bc20bf7163a.png)
+
+
+This show is not for everyone and some people might not like it but I hope you will!
