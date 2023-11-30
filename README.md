@@ -2,14 +2,7 @@
 Gil Rafael S. Bitara
 
 
-
-***Wealth, fame, power.
-Gold Roger the king of the pirates obtained this and everything else the
-World had to offer. And his dying words drove countless souls to the seas.
-“You want my treasure? You can have it! I left everything I gathered
-Together in one place. Now you just have to find it! ”
-These words lured men to the grand line, pursuing dreams greater than they
-Ever dared to imagine. This is the time known as the great pirate era.***
+Hi im here to convince you to watch one piece a very long Anime ive been watching
 
 # One Piece
 ![Facade](https://i.redd.it/2iwo03c9c00c1.jpg)
