@@ -36,7 +36,14 @@ you'll enjoy watching
 
 ![Facade](https://i.pinimg.com/originals/73/d7/fc/73d7fcf37ca0479b39e68bc20bf7163a.png)
 
+***Why you MIGHT not like the show***
 
+its very long and sometimes have boring arcs like thriller bark and long ring long land, which have memorable and funny moments but its generally boring
+![Facade](https://i.pinimg.com/originals/62/22/ca/6222cabe5413bcbb494eef8f190b553a.jpg)
+
+The pacing is very very bad and in some arcs its horrendous. For example in whole cake island one of the major fights lasted **20** Episodes long
+![Facade](https://media.tenor.com/f3pFklsoO5MAAAAM/stylish-walk.gif)
+  
 With this, this is a trailer that is fanmade. I hope you consider on watching this show!
 <iframe width="560" height="315" src="https://www.youtube.com/embed/gHFY1zOeZjQ?si=Zc9LSFmroGLy1IJ5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
