@@ -42,6 +42,9 @@ its very long and sometimes have boring arcs like thriller bark and long ring lo
 ![Facade](https://i.pinimg.com/originals/62/22/ca/6222cabe5413bcbb494eef8f190b553a.jpg)
 
 The pacing is very very bad and in some arcs its horrendous. For example in whole cake island one of the major fights lasted **20** Episodes long
+
+
+
 ![Facade](https://media.tenor.com/f3pFklsoO5MAAAAM/stylish-walk.gif)
   
 With this, this is a trailer that is fanmade. I hope you consider on watching this show!
