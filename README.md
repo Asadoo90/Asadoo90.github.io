@@ -37,4 +37,6 @@ you'll enjoy watching
 ![Facade](https://i.pinimg.com/originals/73/d7/fc/73d7fcf37ca0479b39e68bc20bf7163a.png)
 
 
-This show is not for everyone and some people might not like it but I hope you will!
+With this, this is a trailer that is fanmade. I hope you consider on watching this show!
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gHFY1zOeZjQ?si=Zc9LSFmroGLy1IJ5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
